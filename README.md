@@ -9,3 +9,4 @@ Currently working on getting better, at , pretty much everything
 * Discord: *atreyaved#2561*
 * Github Page: https://github.com/atreyaved.
 * Email: [atreyav.ved@gmail.com](mailto:atreya.ved@gmail.com)
+* DateOfBirth : April 4th , no year tho
